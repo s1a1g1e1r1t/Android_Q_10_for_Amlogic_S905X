@@ -1,0 +1,1 @@
+# Android_Q_10_for_Amlogic_S905X
